@@ -1,0 +1,1 @@
+Vill du bara klara Flerdimmen genom att plugga standarduppgifter. Då är detta guiden för dig. Jag har systematiskt gått igenom typ 13 tentor och sett vilka typer av uppgifter som kommer. På varje tenta står det vilken typ av uppgift det är osv. Behöver du se lösningar så finns vissa på nätet om du går in på tentans hemsida.
